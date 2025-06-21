@@ -1,0 +1,1 @@
+Een curator kan hiertoe dus ook zelf het initiatief nemen door een verzekeraar vanaf het begin bij het doorstartproces te betrekken en om de W&I-verzekering in het doorstartproces te vlechten, althans door de mogelijkheid van het afsluiten daarvan te bieden. Dit wordt een **seller-initiated buyside policy** genoemd vandongenWIverzekeringFaillissementMatch2024 4

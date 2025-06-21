@@ -1,0 +1,1 @@
+De recente toename van het gebruik ervan is het gevolg van toenemende risicoaversie, verbeteringen aan het product, lagere premies door – onder andere – verhoogde competitiviteit in de verzekeringsmarkt en betere inpassing in het M&A-proces  [[KeijzerWarrantyIndemnity2012]] 1

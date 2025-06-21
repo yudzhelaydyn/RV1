@@ -1,0 +1,1 @@
+De Hoge Raad is met het [[§ Hoog Catharijne-arrest]] een weg ingeslagen die voor het bedrijfsovernameverkeer de constructie van **garanties** als vehikel **niet meer die zekerheid doet bieden die voorheen hieraan was toegedicht**. vanhuizenRisicobeheersingBijBedrijfsovernames2002 2

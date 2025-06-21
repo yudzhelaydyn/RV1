@@ -1,0 +1,4 @@
+ Het is raadzaam ervoor te zorgen dat de polis bovendien aansluit op de #SPA. Het schadebegrip ligt idealiter in lijn met hetzelfde begrip in de SPA. Verzekeraars accepteren vaak het Nederlandse wettelijk schadebegrip, zolang schade niet wordt berekend op basis van multiples of andere waarderingsmethoden
+ [[CrainBridgingGap2018]] 4
+
+Daarnaast verdient het aanbeveling de W&I-polis ook overigens in te bedden in de SPA. Als het de bedoeling is dat een #koperspolis de enige zekerheid vormt, nemen verkopers bijvoorbeeld vaak op dat de aansprakelijkheidsbeperking tussen koper en verkoper in stand blijft al keert de verzekeraar om wat voor reden dan ook niet uit  *(bijvoorbeeld omdat de premie niet tijdig is voldaan of omdat, ingeval van een MGA, de achterliggende risicodragers niet uitkeren)* [[CrainBridgingGap2018]] 4

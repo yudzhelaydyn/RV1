@@ -1,0 +1,20 @@
+Een belangrijke begrenzing van de dekking is gelegen in de eis van de ongewisheid, en in de op de verzekeringsnemer rustende informatieplicht jegens verzekeraar bij het aangaan van een verzekeringsovereenkomst. Daarnaast dekt de warranty & indemnity-verzekering niet elke garantie. vanhuizenRisicobeheersingBijBedrijfsovernames2002 1
+
+De warranty & indemnity-verzekering kent een vrij simpele dekkingsomschrijving. De verzekeraar vergoedt de schade ‘arising from the breach of an Insured Warranty which results in a Claim first made against the insured during the relevant Period of insurance’. Garanties op grond waarvan de verkoper ervoor instaat dat een situatie (niet) (meer) zal bestaan na het sluiten van het overnamecontract zijn van de dekking uitgesloten vanhuizenRisicobeheersingBijBedrijfsovernames2002 1
+
+**Alleen verleden:** Een garantie van de verkoper dat bij een dispuut over de huur van een door de onderneming in gebruik zijnd bedrijfsgebouw vóór overname zal zijn afgewikkeld, is niet verzekerbaar. Onder een warranty & indemnity-verzekering is slechts verzekerbaar het verleden. Verzekerbaar zijn uitsluitend garanties op grond waarvan de verkoper ervoor instaat dat een situatie **wel of niet bestaat ten tijde van de bedrijfsovername**. vanhuizenRisicobeheersingBijBedrijfsovernames2002 1 -> zie voor meer info [[§§ Verzekerbaarheid  van garanties]]
+
+Hoe meer tijd een verzekeraar krijgt om zich in de materie te verdiepen, hoe groter de kans op een ruime dekking. vandongenWIverzekeringFaillissementMatch2024 4
+
+---
+**Warranty spreadsheet:** The scope of coverage under a W&I insurance is mainly determined by the so-called **warranty spreadsheets** attached to the policy. These warranty spreadsheets set forth the scope of coverage for each of the individual warranties provided for in the purchase agreement paulsAvoidingPitfallsWI2020 1
+
+---
+
+The scope of coverage is determined in connection with the representations and warranties made by the seller in the sale and purchase agreement. The insurer normally selects the representations and warranties to insure and may also intervene on the wording of the representations and warranties, restricting or clarifying their scope for coverage purposes only. A policy may also be issued on a “blanket” basis, thereby covering all the seller’s representations and warranties except for those excluded maranoGovernanceInsuranceUndertakings2022 213-214
+
+**knowledge exclusion:** Representation and warranty insurance policies typically contain a prior knowledge exclusion that excludes coverage where the insured had knowledge of circumstances leading to the breach at the time the policy incepted. The policy defines the persons who may have actual knowledge of a breach as those who supervised or conducted any due diligence in connection with the acquisition agreement, and/or those who supervised, prepared, or negotiated the acquisition agreement (“deal team members”). The names of the deal team members are generally listed in an appendix attached to the policy maranoGovernanceInsuranceUndertakings2022 214
+
+Further, seller-side policies generally exclude coverage for breaches resulting from the seller’s fraud. This exclusion may be subject to a final adjudication of fraud before becoming applicable, otherwise a mere allegation of fraud can be an argument for the insurer to deny coverage. A severability clause may be inserted, ensuring coverage for innocent co-insureds. Buyer-side policies, instead, do not contain a fraud exclusion and, therefore, are considered to provide broader coverage,32 and they represent almost the totality of the policies issued. maranoGovernanceInsuranceUndertakings2022 214
+
+Other exclusions specific to representation and warranty insurance may concern **unfulfilled projections** and forward-looking statements and losses due to price adjustments based on the seller’s net worth determined after a post-closing audit. maranoGovernanceInsuranceUndertakings2022 214-215

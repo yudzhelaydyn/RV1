@@ -1,0 +1,9 @@
+In circa 20% van de overnamecontracten in Europa wordt een W&I-verzekering gesloten [[TarlavskiEuropeanMA2022]] 153
+
+De Warranty- & Indemnityverzekering (‘W&I-verzekering’) heeft een prominente plaats in de Nederlandse transactiepraktijk, zowel bij bedrijfsovernames als vastgoedtransacties [[MarkusWIverzekeringClaims2024]] 22
+
+Onder een significant aantal W&I-verzekeringen wordt ook daadwerkelijk een claim ingediend. Zo rapporteert Aon in haar Claims Study 2023 dat gemiddeld onder 14% van de tussen 2017 en 2022 in de EMEA-regio gesloten W&I-verzekeringen ten minste één claim wordt ingediend (Aon, ‘Transaction Solutions Global claims Study: Effectively managing Deal risk to Secure Investments and Enhance returns’, 2023. Zie bijv. ook Howden, ‘m&A claims report 2023’) en [[MarkusWIverzekeringClaims2024]] 22
+
+Op lang niet alle claims van de verzekerde volgt ook een uitkering. Soms volgt een uitkering pas na een lange discussie met de W&I-verzekeraar. Verzekerden moeten er dan ook rekening mee houden dat een uitkering door de W&Iverzekeraar geen zekerheid is, en dat daar vaak veel tijd en (ongedekte) kosten mee gemoeid gaan [[MarkusWIverzekeringClaims2024]] 22
+
+De wereldwijde verzekerde limiet voor W&I-verzekeringen neemt de laatste jaren aanzienlijk toe. Er is geen betrouwbare informatie beschikbaar over de totale wereldwijde W&Iverzekeringsmarkt, maar een van de grootste ‘insurance brokers’ rapporteerde over 2011 een verzekerde limiet van ongeveer USD 2,8 miljard, ten opzichte van USD 2 miljard in 2010. Een andere leidende insurance broker berekende in een conservatieve schatting het aantal W&I-verzekeringen in 2010 op ongeveer 250 wereldwijd (met uitzondering van de VS), met een toename in 2011 van “vele tientallen procenten”. [[KeijzerWarrantyIndemnity2012]] 1

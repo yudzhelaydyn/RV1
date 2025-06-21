@@ -1,0 +1,1 @@
+Een van de belangrijkste onderdelen van de SPA is de **warranty schedule** #warranty-schedule. Deze set garanties dient zekerheid te verschaffen over de conformiteit van de entiteit die wordt overgenomen deruijterKroniekOvernamegeschillen20222023 7

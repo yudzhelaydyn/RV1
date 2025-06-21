@@ -1,0 +1,7 @@
+Een W&I-verzekering wordt vaak mede gesloten om de verkoper een #clean-exit te bieden. De gedachte is dan immers dat de koper alleen verhaal heeft op de W&Iverzekeraar. Een mogelijk verhaal op de verkoper wordt door middel van de aansprakelijkheidsbeperkingen in de SPA steeds vaker beperkt tot 1 euro, en in elk geval tot een heel laag bedrag gelijk aan het eigen risico onder de W&I-verzekering (de ‘cap’). De koper heeft doorgaans alleen verhaal op de verkoper bij zware vormen van schuld van de verkoper. In het algemeen wordt een beroep op een aansprakelijkheidsbeperking naar [[maatstaven van redelijkheid en billijkheid]] onaanvaardbaar geacht bij ‘eigen’ opzet of bewuste roekeloosheid van die contractspartij 
+[[MarkusWIverzekeringClaims2024]] 2
+
+
+Het doel van een W&I-verzekering is om bepaalde risico’s die voortvloeien uit garanties en algemene fiscale vrijwaringen onder te brengen bij een derde partij, de verzekeraar  [[KeijzerWarrantyIndemnity2012]] 1
+
+Het doel van een W&I-verzekering is een verschuiving van risico naar een verzekeraar (in het jargon ook wel market). De gedachte is dat daardoor gemakkelijker een transactie tot stand komt tussen koper en verkoper, ondanks dat het proces complexer wordt door de betrokkenheid van de W&I-verzekeraar [[CrainBridgingGap2018]] 1

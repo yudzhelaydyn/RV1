@@ -1,0 +1,10 @@
+**Groei populariteit en redenen:** Hoewel W&I dekkingen al sinds het einde van de vorige eeuw worden afgesloten, heeft het gebruik een vlucht genomen sinds 2013. De grote verandering die rond die tijd optrad, was de verschuiving van drijfveren om de verzekering af te sluiten. Voorafgaand aan 2013 was het veelal de verkoper die als verzekeringsnemer het financiële risico dat met het verstrekken van garanties gepaard gaat wilde afwentelen op een verzekeraar. De W&I-verzekering functioneerde dus als een aansprakelijkheidsverzekering en de verzekeringsnemer werd gedreven door de behoefte aan risicoallocatie. Als de verzekering geen dekking bood, was de verkoper natuurlijk nog wel aansprakelijk. Omdat er in het algemeen weinig claims onder garanties plaatsvonden, was het risicobewustzijn, en daarmee de behoefte aan een W&Iverzekering, beperkt. vandongenWIverzekeringFaillissementMatch2024 1
+
+--- 
+
+In recent years, the use of R&W insurance has become significantly more widespread. Although first introduced in the 1990s, developments in the underwriting process, expansion of coverage, and the prevalence of **PE** participants in the acquisition market have dramatically expanded R&W insurance usage over the past ten years (Griffith 2020). Industry reports estimate that the US market for R&W insurance was less than 100 policies in 2011 and grew to more than 2,500 policies in 2018.5 It is now estimated that R&W insurance is obtained in the majority of significant private deals. even-tovRepresentationsWarrantiesInsurance2022 5
+
+---
+
+
+In 2022 werd een W&I-verzekering gebruikt in ruim de helft van de private-equity-exits wereldwijd (waarbij ons kantoor heeft geadviseerd). *(] Gebaseerd op data van meer dan 1700 private M&A-transacties waarbij ons kantoor wereldwijd heeft geadviseerd in de afgelopen elf jaar (zonder uitsplitsing per jaar of regio).)* eijsvogelOnderhandelenContracterenProcederen2023 15

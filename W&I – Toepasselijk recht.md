@@ -1,0 +1,3 @@
+Het verdient aanbeveling om ervoor te kiezen dat hetzelfde recht van toepassing is op de polis en de koopovereenkomst.17 Als Nederlands recht van toepassing is, moet nadrukkelijk worden gelet op de invloed van Titel 17 van Boek 7 BW (art. 7:925 BW e.v.). Deze titel kent zowel dwingendrechtelijke bepalingen als bepalingen van regelend recht  [[KeijzerWarrantyIndemnity2012]] 5
+
+Op polissen in de Nederlandse markt wordt meestal Nederlands recht van toepassing verklaard. Het algemene Nederlandse verzekeringsrecht is in dat geval van toepassing op de polis *(Boek 7, titel 17 bW)*  [[CrainBridgingGap2018]] 5

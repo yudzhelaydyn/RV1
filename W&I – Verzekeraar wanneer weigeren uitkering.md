@@ -1,0 +1,1 @@
+Een verzekeraar zal uitkering weigeren als de schade is veroorzaakt door opzet of roekeloosheid van de verzekeringnemer of de verzekerde. Art. 7:952 BW; alhoewel geen dwingend recht zorgt art. 3:40 BW voor een afbakening van de mogelijkheden  [[KeijzerWarrantyIndemnity2012]] 3

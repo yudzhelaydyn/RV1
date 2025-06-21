@@ -1,0 +1,3 @@
+De verkoper kan door een W&Iverzekering een clean exit bereiken, omdat de aansprakelijkheid van de verkoper geheel of grotendeels wordt uitgesloten en die daardoor geen of slechts beperkt geld hoeft achter te houden voor eventuele claims. eijsvogelOnderhandelenContracterenProcederen2023 15
+
+De W&I-verzekeraar neemt als het ware (een deel van) de risico’s met betrekking tot de (inbreuk op) garanties in de SPA over, meestal om een ‘clean exit’ te realiseren voor de verkoper. Dit betekent dat een koper bij een schending van een garantie in beginsel een claim moet indienen bij de verzekeraar en niet bij de verkoper deruijterKroniekOvernamegeschillen20222023 7 verwijzend naar Keijzer, Wijdeveld & Van ’t Wout 2022.
